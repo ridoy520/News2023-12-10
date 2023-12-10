@@ -77,6 +77,9 @@
 ২০২৩ সালের ডিসেম্বর মাসে বাংলাদেশের রাষ্ট্রপতির শপথ গ্রহণ
 ২০২৩ সালের ডিসেম্বর মাসে বাংলাদেশে নতুন আইটি পার্ক চালু
 আশা করি এই খবরগুলো আপনার ভালো লেগেছে।
+roborock S7 Max Ultra Robot Vacuum and Mop Combo, Auto Mop Drying/ Washing, Self-Emptying, Self-Refilling, 5500Pa Suction, Reactive Tech Obstacle Avoidance, Black (RockDock Ultra Series)
+Details:
+https://amzn.to/3TANRnR
    আবহাওয়া
 
 বাংলাদেশে: ঢাকায় আজকের আবহাওয়া শুষ্ক এবং হালকা রোদযুক্ত থাকবে। সর্বোচ্চ তাপমাত্রা থাকবে ২৯ ডিগ্রি সেলসিয়াস এবং সর্বনিম্ন তাপমাত্রা থাকবে ১৭ ডিগ্রি সেলসিয়াস।
@@ -109,6 +112,9 @@
 
 বাংলাদেশে: বাংলাদেশের প্রধানমন্ত্রী শেখ হাসিনা আজ একটি বক্তৃতায় বলেন যে, তিনি "দেশের শিক্ষাব্যবস্থাকে আরও উন্নত করতে চান"।
 বিশ্বে: মার্কিন যুক্তরাষ্ট্রের প্রেসিডেন্ট জো বাইডেন আজ একটি বক্তৃতায় বলেন যে, তিনি "দেশের স্বাস্থ্যসেবা ব্যবস্থাকে আরও উন্নত করতে চান"।
+roborock Dyad Pro Combo Wet Dry Vacuum Cleaner, 5-in-1 Cordless Vacuum for Multi-Surface, 17000Pa Suction, Vanquish Wet and Dry Messes, Self-Cleaning & Drying, Perfect for Sticky Messes and Pet Hair
+Details:
+https://amzn.to/4arLPwj
    আবহাওয়া
 
 বাংলাদেশে: আজকের আবহাওয়া শুষ্ক এবং হালকা রোদযুক্ত থাকবে। দিনের তাপমাত্রা থাকবে সর্বোচ্চ ৩২ ডিগ্রি সেলসিয়াস এবং রাতের তাপমাত্রা থাকবে সর্বনিম্ন ১৬ ডিগ্রি সেলসিয়াস।
